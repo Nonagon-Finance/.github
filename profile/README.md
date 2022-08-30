@@ -1,4 +1,4 @@
-               ![NONAGON FINANCE - Optimism](https://user-images.githubusercontent.com/19872990/187523875-e0911192-8d9e-47fc-a83e-69f78a72a34b.gif) 
+          ![NONAGON FINANCE - Optimism](https://user-images.githubusercontent.com/19872990/187523875-e0911192-8d9e-47fc-a83e-69f78a72a34b.gif) 
 
 
    <br>
